@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/400-archive/5-2///z/"}
+{"dg-publish":true,"permalink":"/400-Archive/5.2/青岛旅游/民宿列表/z_云语山居-崂山/"}
 ---
 
 - 价格：250左右
