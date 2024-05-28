@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/400-archive/5-2///z/"}
+{"dg-publish":true,"permalink":"/400-Archive/5.2/青岛旅游/民宿列表/z_艾尚沙滩美墅-崂山/"}
 ---
 
 - 价格：340左右
