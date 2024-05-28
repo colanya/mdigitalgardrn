@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/400-archive/5-2////a/"}
+{"dg-publish":true,"permalink":"/400-Archive/5.2/青岛旅游/青岛景点列表/崂山风景区/A_崂山地铁+公交/"}
 ---
 
 地铁分布情况
