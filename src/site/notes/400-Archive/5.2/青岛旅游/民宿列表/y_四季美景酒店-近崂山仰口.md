@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/400-archive/5-2///y/"}
+{"dg-publish":true,"permalink":"/400-Archive/5.2/青岛旅游/民宿列表/y_四季美景酒店-近崂山仰口/"}
 ---
 
 仰口售票处步行400m
